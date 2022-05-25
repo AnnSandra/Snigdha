@@ -1,1 +1,1 @@
-# Snigdha
+# INFINITE-RUNNER-GAME
